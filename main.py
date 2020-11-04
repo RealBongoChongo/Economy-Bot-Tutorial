@@ -1,0 +1,1 @@
+welcome to my frickin economy tutorial series. If you are here before i started the series then you are very early
